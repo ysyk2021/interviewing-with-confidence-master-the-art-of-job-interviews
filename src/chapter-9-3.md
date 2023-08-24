@@ -1,5 +1,3 @@
-What to Do If You Don't Get the Job
-================================================================================
 
 In this chapter, we will focus on what to do if you don't get the job after the interview. While it can be disappointing to receive a rejection, there are still steps you can take to learn from the experience and potentially even turn the situation into a positive outcome.
 

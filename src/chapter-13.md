@@ -1,5 +1,3 @@
-Chapter 13: Answering Difficult Interview Questions
-===================================================
 
 In this chapter, we will discuss techniques and strategies for answering difficult or unexpected interview questions. We will explore ways to address potential red flags or concerns, and tips for turning negative aspects into positives.
 

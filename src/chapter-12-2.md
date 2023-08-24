@@ -1,5 +1,3 @@
-The STAR Method for Answering Behavioral Questions
-================================================================================================
 
 In this chapter, we will focus on advanced interviewing techniques, specifically the STAR method for answering behavioral questions. This approach can help candidates provide specific examples of their skills and experience during the interview process.
 

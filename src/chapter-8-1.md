@@ -1,5 +1,3 @@
-Phone and Video Interviews
-=================================================================================
 
 In this chapter, we will discuss special interview circumstances such as phone and video interviews. We will explore tips and strategies for navigating these types of interviews to help candidates feel confident and prepared.
 

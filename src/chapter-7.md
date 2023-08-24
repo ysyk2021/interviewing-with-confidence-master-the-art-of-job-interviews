@@ -1,5 +1,3 @@
-Chapter 7: Demonstrating Your Value Proposition
-===============================================
 
 In this chapter, we will focus on demonstrating your value proposition during a job interview. This involves identifying and showcasing your unique selling points, skills, achievements, and experience to demonstrate your qualifications and value as a potential employee.
 

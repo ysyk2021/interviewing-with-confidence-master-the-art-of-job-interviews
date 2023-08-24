@@ -1,5 +1,3 @@
-Chapter 9: Following Up After the Interview
-===========================================
 
 In this chapter, we will focus on the importance of following up after the interview. We will explore strategies for staying top-of-mind with hiring managers and what to do if you don't get the job.
 

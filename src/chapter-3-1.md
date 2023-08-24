@@ -1,5 +1,3 @@
-Gathering Information About the Company and Its Culture
-========================================================================================================
 
 In this chapter, we will focus on researching the company and position to gather information about the organization and its culture. Effective research is crucial for demonstrating interest in the position and organization and preparing for interview questions.
 

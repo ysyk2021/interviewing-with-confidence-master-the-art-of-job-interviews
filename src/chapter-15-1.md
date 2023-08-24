@@ -1,5 +1,3 @@
-Interviews with successful job seekers and hiring managers
-===============================================================================================================================================
 
 One of the best ways to prepare for job interviews is to learn from those who have been successful in their job search or have experience as a hiring manager. In this chapter, we will share insights and advice from successful job seekers and hiring managers to help you master the art of job interviews.
 

@@ -1,5 +1,3 @@
-Chapter 14: Building Your Confidence for Interviewing Success
-=============================================================
 
 In this chapter, we will discuss the importance of building confidence for interviewing success. We will explore strategies for enhancing self-esteem and resilience, strengthening communication skills, and developing adaptability and resourcefulness.
 

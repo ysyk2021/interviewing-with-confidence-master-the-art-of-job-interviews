@@ -1,5 +1,3 @@
-Building an Effective Online Presence
-==================================================================================
 
 In this chapter, we will focus on building an effective online presence as part of developing a strong personal brand. An online presence can help job seekers differentiate themselves from other candidates and showcase their skills, experiences, and achievements to potential employers.
 

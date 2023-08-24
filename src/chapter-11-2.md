@@ -1,5 +1,3 @@
-Controlling Your Own Nonverbal Cues
-==================================================================================
 
 In this chapter, we will focus on the importance of controlling your own nonverbal cues during job interviews. We will explore how nonverbal communication can impact the perception of candidates and provide tips for leveraging nonverbal communication to make a positive impression.
 

@@ -1,5 +1,3 @@
-Researching the Company and Position - Identifying Potential Interview Questions
-===========================================================================================
 
 Researching the company and position is an essential part of preparing for a job interview. In this chapter, we will discuss how to research the company and position, and how to identify potential interview questions.
 

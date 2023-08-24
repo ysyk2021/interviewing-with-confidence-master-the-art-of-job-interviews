@@ -1,5 +1,3 @@
-Chapter 11: Mastering Nonverbal Communication
-=============================================
 
 In this chapter, we will discuss the importance of nonverbal communication in job interviews. We will explore how to read and interpret body language, control your own nonverbal cues, and create a positive first impression.
 

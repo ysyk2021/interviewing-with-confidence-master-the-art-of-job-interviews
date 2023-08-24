@@ -1,5 +1,3 @@
-Communicating Effectively During the Interview
-===============================================================================================
 
 In this chapter, we will focus on answering common interview questions and communicating effectively during the interview process. Effective communication is a key component of successful job interviews and can help candidates showcase their skills and qualifications to potential employers.
 

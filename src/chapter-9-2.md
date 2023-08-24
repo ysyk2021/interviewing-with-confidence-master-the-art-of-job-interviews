@@ -1,5 +1,3 @@
-Strategies for Staying Top-of-Mind with Hiring Managers
-====================================================================================================
 
 In this chapter, we will focus on strategies for staying top-of-mind with hiring managers after an interview. By staying in touch and maintaining a positive relationship with the hiring manager, candidates can increase their chances of being selected for the job.
 

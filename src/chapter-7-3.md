@@ -1,5 +1,3 @@
-Providing Evidence of Your Qualifications
-==========================================================================================
 
 In this chapter, we will focus on providing evidence of your qualifications to demonstrate your value proposition in job interviews. Providing evidence of your qualifications can help showcase your skills and accomplishments and differentiate you from other candidates.
 

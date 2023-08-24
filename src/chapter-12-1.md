@@ -1,5 +1,3 @@
-Using Storytelling to Make Your Answers Compelling
-================================================================================================
 
 In this chapter, we will focus on advanced interviewing techniques, specifically using storytelling to make your answers compelling. This approach can help candidates engage the interviewer and demonstrate their skills and experience in a memorable and impactful way.
 

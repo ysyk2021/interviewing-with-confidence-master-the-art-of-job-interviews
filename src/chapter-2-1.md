@@ -1,5 +1,3 @@
-Different Types of Job Interviews
-=================================================================================
 
 In this chapter, we will focus on understanding the interview process and the different types of job interviews. The interview process can vary depending on the organization and position, but there are several common types of job interviews that candidates should be aware of.
 

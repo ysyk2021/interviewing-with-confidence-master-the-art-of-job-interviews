@@ -1,5 +1,3 @@
-Techniques for Answering Common Interview Questions
-====================================================================================================
 
 In this chapter, we will focus on techniques for answering common interview questions. Effective responses to common interview questions can help demonstrate your qualifications and value proposition to potential employers.
 

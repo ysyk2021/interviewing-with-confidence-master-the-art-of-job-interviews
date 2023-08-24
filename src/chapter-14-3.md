@@ -1,5 +1,3 @@
-Developing Adaptability and Resourcefulness
-==========================================================================================================
 
 In this chapter, we will focus on building confidence for interviewing success. We will explore the importance of adaptability and resourcefulness in job interviews and provide tips for developing these skills.
 

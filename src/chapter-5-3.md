@@ -1,5 +1,3 @@
-Strategies for Building Confidence and a Winning Mindset
-================================================================================================
 
 In this chapter, we will focus on strategies for building confidence and a winning mindset when preparing for a job interview. Effective preparation can help candidates feel confident and perform their best during the interview process.
 

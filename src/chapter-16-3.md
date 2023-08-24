@@ -1,5 +1,3 @@
-Tips for Building Rapport with Interviewers and Making a Connection
-=============================================================================================================
 
 In this chapter, we will discuss tips for building rapport with interviewers and making a connection during job interviews. We will explore techniques for creating a comfortable and engaging conversation to help candidates stand out positively.
 

@@ -1,5 +1,3 @@
-Chapter 3: Researching the Company and Position
-===============================================
 
 In this chapter, we will focus on the importance of researching the company and position before a job interview. This involves gathering information about the company culture, understanding the job requirements and responsibilities, and identifying potential interview questions.
 

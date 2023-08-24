@@ -1,5 +1,3 @@
-Strategies for Negotiating Benefits and Perks
-==========================================================================================
 
 In this chapter, we will focus on negotiating benefits and perks as part of the job offer process. While salary is an important consideration, non-salary benefits such as healthcare, retirement plans, and vacation time can also have a significant impact on job satisfaction and overall compensation.
 

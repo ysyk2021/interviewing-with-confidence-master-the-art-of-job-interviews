@@ -1,5 +1,3 @@
-Chapter 5: Preparing for the Interview
-======================================
 
 In this chapter, we will focus on preparing for the interview. We will explore tips for creating an effective interview preparation plan, techniques for managing interview anxiety, and strategies for building confidence and a winning mindset.
 

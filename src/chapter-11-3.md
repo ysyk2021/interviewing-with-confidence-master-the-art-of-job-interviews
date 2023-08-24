@@ -1,5 +1,3 @@
-Creating a Positive First Impression
-===================================================================================
 
 In this chapter, we will focus on the importance of creating a positive first impression during job interviews. We will explore how nonverbal communication can impact the initial perception of candidates and provide tips for making a great first impression.
 

@@ -1,5 +1,3 @@
-What to Expect During the Interview Process
-===========================================================================================
 
 In this chapter, we will focus on what to expect during the interview process. The interview process can vary depending on the organization and position, but there are several common steps that candidates can expect.
 

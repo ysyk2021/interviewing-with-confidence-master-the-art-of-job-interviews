@@ -1,5 +1,3 @@
-Chapter 8: Navigating Special Interview Circumstances
-=====================================================
 
 In this chapter, we will focus on navigating special interview circumstances. We will explore strategies for phone and video interviews, group interviews, as well as second-round and final interviews.
 

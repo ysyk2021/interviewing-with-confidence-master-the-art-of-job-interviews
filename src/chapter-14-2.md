@@ -1,5 +1,3 @@
-Strengthening Communication Skills
-=================================================================================================
 
 In this chapter, we will focus on building confidence for interviewing success by strengthening communication skills. Effective communication is essential for success in job interviews and requires intentional effort and practice.
 

@@ -1,5 +1,3 @@
-Chapter 10: Negotiating Salary and Benefits
-===========================================
 
 In this chapter, we will discuss the salary negotiation process and strategies for negotiating benefits and perks. We will explore tips for researching and determining fair compensation to help you negotiate with confidence.
 

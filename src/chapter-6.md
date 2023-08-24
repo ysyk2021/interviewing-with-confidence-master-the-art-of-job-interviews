@@ -1,5 +1,3 @@
-Chapter 6: Answering Common Interview Questions
-===============================================
 
 In this chapter, we will focus on answering common interview questions. While it's impossible to predict every question that may be asked during an interview, there are many common questions that candidates can prepare for in advance.
 

@@ -1,5 +1,3 @@
-Enhancing Self-Esteem and Resilience
-===================================================================================================
 
 In this chapter, we will focus on enhancing self-esteem and resilience to build confidence for interviewing success. These qualities are essential for overcoming challenges and setbacks during the job search process.
 

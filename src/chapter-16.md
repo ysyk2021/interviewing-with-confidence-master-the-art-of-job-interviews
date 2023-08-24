@@ -1,5 +1,3 @@
-Chapter 16: Interviewing with Confidence
-========================================
 
 In this chapter, we will discuss proven techniques for mastering the art of job interviews. We will explore strategies for projecting confidence and competence, building rapport with interviewers, and making a lasting connection.
 

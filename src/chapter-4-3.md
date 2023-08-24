@@ -1,5 +1,3 @@
-Crafting a Resume and Cover Letter that Make a Great First Impression
-==================================================================================================================
 
 In this chapter, we will discuss the importance of creating a strong personal brand through crafting a well-written resume and cover letter. We will explore strategies for creating a standout resume and cover letter that make a great first impression.
 

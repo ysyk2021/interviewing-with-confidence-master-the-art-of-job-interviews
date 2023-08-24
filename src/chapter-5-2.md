@@ -1,5 +1,3 @@
-Techniques for Managing Interview Anxiety
-=================================================================================
 
 In this chapter, we will focus on managing interview anxiety when preparing for a job interview. Anxiety and nervousness are common feelings before an interview, but effective preparation and techniques for managing anxiety can help candidates feel more confident and perform their best during the interview process.
 

@@ -1,5 +1,3 @@
-Reading and Interpreting Body Language
-=====================================================================================
 
 In this chapter, we will focus on mastering nonverbal communication during job interviews. Nonverbal communication, such as body language, plays an important role in how candidates are perceived by interviewers and can impact the outcome of the interview.
 
