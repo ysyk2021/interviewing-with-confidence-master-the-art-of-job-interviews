@@ -1,5 +1,4 @@
 
-
 Job interviews can be intimidating, and it's easy to feel nervous and unprepared. That's where "Interviewing with Confidence: Master the Art of Job Interviews" comes in.
 
 This book provides a comprehensive guide to mastering the art of job interviews, from preparation to follow-up. From communication skills to body language, this book covers everything you need to know to approach any job interview with confidence and land your dream job.
