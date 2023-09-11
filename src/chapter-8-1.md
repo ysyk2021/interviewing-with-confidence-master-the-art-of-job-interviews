@@ -1,5 +1,4 @@
-Chapter 6: Phone and Video Interviews
-=====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the unique aspects of phone and video interviews, offering insights and strategies to help you excel in these increasingly common interview formats.
 

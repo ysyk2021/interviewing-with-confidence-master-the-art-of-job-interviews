@@ -1,5 +1,4 @@
-Chapter 8: Showcasing Your Skills, Achievements, and Experience
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into strategies for effectively showcasing your skills, achievements, and experience during job interviews. Mastering this art will enable you to make a lasting impression and demonstrate your suitability for the position.
 

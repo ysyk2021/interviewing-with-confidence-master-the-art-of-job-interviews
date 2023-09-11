@@ -1,5 +1,4 @@
-Chapter 7: Techniques for Managing Interview Anxiety
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Interview anxiety is a common challenge that many job seekers face. In this chapter, we will explore effective techniques to help you manage and overcome interview anxiety, allowing you to interview with confidence.
 

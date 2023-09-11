@@ -1,5 +1,4 @@
-Chapter 14: Strategies for Addressing Potential Red Flags or Concerns
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for addressing potential red flags or concerns that may arise during a job interview. Handling these issues with confidence and transparency can help you overcome obstacles and leave a positive impression on your prospective employer.
 

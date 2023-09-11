@@ -1,5 +1,4 @@
-Chapter 5: Demonstrating Leadership Skills and Potential
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of landing your dream job, it's crucial to understand that most employers value leadership skills and potential as key attributes in their candidates. Whether you're interviewing for a management position or an entry-level role, demonstrating your ability to lead and inspire others can set you apart from the competition. In this chapter, we will explore the art of showcasing your leadership skills and potential during job interviews.
 

@@ -1,5 +1,4 @@
-Chapter 7: Interviews with Successful Job Seekers and Hiring Managers
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will gain insights from the experiences and perspectives of successful job seekers and hiring managers. Their valuable input will provide a well-rounded understanding of the art of job interviews.
 

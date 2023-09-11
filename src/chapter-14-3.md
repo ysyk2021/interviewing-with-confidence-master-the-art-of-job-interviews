@@ -1,5 +1,4 @@
-Chapter 12: Developing Adaptability and Resourcefulness
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of adaptability and resourcefulness in the context of job interviews and how you can develop these crucial skills to excel in your career journey.
 

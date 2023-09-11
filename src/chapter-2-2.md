@@ -1,5 +1,4 @@
-Chapter 5: What to Expect During the Interview Process
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Understanding what to expect during the interview process is essential for mastering the art of job interviews. In this chapter, we will explore the typical stages and elements of the interview process, helping you navigate each step with confidence.
 

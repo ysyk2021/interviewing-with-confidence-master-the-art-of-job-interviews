@@ -1,5 +1,4 @@
-Chapter 11: What to Do If You Don't Get the Job
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will discuss how to navigate the disappointment of not getting the job and turn it into a constructive learning experience for your future job search endeavors.
 

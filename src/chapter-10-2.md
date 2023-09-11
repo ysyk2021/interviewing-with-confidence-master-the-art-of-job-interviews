@@ -1,5 +1,4 @@
-Chapter 7: Tips for Researching and Determining Fair Compensation
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore essential strategies for researching and determining fair compensation before heading into a job interview. Understanding the value of your skills and experience in the job market is crucial for negotiating a competitive salary package.
 

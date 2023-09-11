@@ -1,5 +1,4 @@
-Chapter 11: Identifying Potential Interview Questions
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for identifying potential interview questions. Anticipating the questions you might be asked is a crucial step in interview preparation, as it allows you to formulate thoughtful responses and present yourself in the best possible light.
 

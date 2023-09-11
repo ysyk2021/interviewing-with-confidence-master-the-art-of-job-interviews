@@ -1,5 +1,4 @@
-Chapter 6: Building an Effective Online Presence
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's digital age, your online presence plays a significant role in shaping your professional image and can impact your job search success. In this chapter, we will explore the importance of building an effective online presence and provide strategies for doing so.
 

@@ -1,5 +1,4 @@
-Chapter 4: Tips for Building Rapport with Interviewers and Making a Connection
-==============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore essential strategies for establishing a strong rapport with your interviewers and creating a genuine connection during job interviews.
 

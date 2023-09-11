@@ -1,5 +1,4 @@
-Chapter 13: Proven Techniques for Mastering the Art of Job Interviews
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into a comprehensive set of proven techniques and strategies that will help you excel in job interviews, ultimately increasing your chances of securing your dream job.
 

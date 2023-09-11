@@ -1,5 +1,4 @@
-Chapter 4: Developing a Personal Brand that Aligns with the Desired Job
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of developing a personal brand that resonates with the job you are pursuing. Your personal brand is a powerful tool that can differentiate you from other candidates and help you stand out in the competitive job market.
 

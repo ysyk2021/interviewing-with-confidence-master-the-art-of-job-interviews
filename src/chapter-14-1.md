@@ -1,5 +1,4 @@
-Chapter 7: Enhancing Self-Esteem and Resilience
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of self-esteem and resilience in the job interview process and provide valuable strategies to boost these qualities, helping you approach interviews with confidence and grace.
 

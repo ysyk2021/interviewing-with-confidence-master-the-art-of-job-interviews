@@ -1,5 +1,4 @@
-Chapter 5: Strengthening Communication Skills
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the essential aspects of communication skills that are integral to excelling in job interviews. Effective communication is not only about what you say but also how you say it, making it a crucial component of your interviewing toolkit.
 

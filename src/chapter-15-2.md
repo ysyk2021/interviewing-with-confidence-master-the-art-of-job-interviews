@@ -1,5 +1,4 @@
-Chapter 5: Insider Tips and Strategies for Interviewing Success
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we'll explore insider tips and strategies that can give you a competitive edge and help you master the art of job interviews with confidence.
 

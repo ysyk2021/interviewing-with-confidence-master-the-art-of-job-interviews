@@ -1,5 +1,4 @@
-Chapter 2: Techniques for Answering Difficult or Unexpected Questions
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Job interviews can be filled with challenging and unexpected questions that test your ability to think on your feet and demonstrate your qualifications effectively. In this chapter, we will explore various techniques and strategies to tackle difficult and unexpected questions with confidence and poise.
 

@@ -1,5 +1,4 @@
-Chapter 1: Creating a Positive First Impression
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the world of job interviews, first impressions are absolutely crucial. They set the tone for the entire interaction and can significantly influence the outcome of the interview process. This chapter will guide you through the essential steps to create a positive first impression that will leave a lasting impact on your potential employers.
 

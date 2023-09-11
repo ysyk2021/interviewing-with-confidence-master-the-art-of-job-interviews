@@ -1,5 +1,4 @@
-Chapter 7: Handling Difficult Interview Questions and Situations
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into strategies for effectively handling challenging interview questions and situations. Job interviews can be unpredictable, and being prepared to navigate difficult queries and scenarios with confidence is essential to your success.
 

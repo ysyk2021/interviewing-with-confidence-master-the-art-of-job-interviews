@@ -1,5 +1,4 @@
-Chapter 10: Tips for Creating an Effective Interview Preparation Plan
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the essential steps and strategies for creating a comprehensive interview preparation plan. Proper preparation is the cornerstone of interviewing with confidence, and a well-structured plan can make all the difference in your success.
 

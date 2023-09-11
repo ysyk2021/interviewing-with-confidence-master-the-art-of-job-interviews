@@ -1,5 +1,4 @@
-Chapter 15: Tips for Turning Negative Aspects into Positives
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore valuable tips and techniques for transforming potentially negative aspects of your background or experiences into positive attributes during job interviews. Learning how to reframe and highlight these aspects can significantly improve your chances of success.
 

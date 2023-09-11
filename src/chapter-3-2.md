@@ -1,5 +1,4 @@
-Chapter 3: Understanding the Job Requirements and Responsibilities
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the crucial process of understanding the job requirements and responsibilities before heading into an interview. A thorough grasp of what the role entails is fundamental to interview success, as it allows you to tailor your responses, showcase your qualifications, and confidently address the specific needs of the position.
 

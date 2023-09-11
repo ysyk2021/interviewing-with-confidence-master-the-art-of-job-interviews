@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Projecting Confidence and Competence
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore essential strategies to project confidence and competence during job interviews, making a powerful and positive impression on your potential employers.
 
